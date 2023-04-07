@@ -1,4 +1,4 @@
-Hello !
+Hello :wave: !!
 I am from Ecuador(:ecuador:) currently living in the US (:us:)  and I always chase opportunities where I can have new challenges. I have been working as a principal developer and I have been able to participate in all the stages and positions in my current company. I like teaching and helping other team members.
 I always like to keep learning and improving our daily tasks with the latest tech trends. And no matter what I always keep a good mood. 
 
